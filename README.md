@@ -1,4 +1,5 @@
-![tumblr_myfavm31WP1qkwe6ao1_500](https://user-images.githubusercontent.com/92124191/167544409-9dbf46f4-51e1-44a1-8731-b3eae338af86.gif)
+
+![walking-code](https://user-images.githubusercontent.com/92124191/172510429-25437ec2-c535-418c-9ddc-3fb99abc0185.gif)
 
 
 ## 💬 Discord [vyberr.cmd#8385] 
